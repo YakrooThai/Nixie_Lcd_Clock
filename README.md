@@ -6,3 +6,4 @@ ST7735 and Raspberry Pi PICO in Micropython language
 
 ![20221129_013357](https://user-images.githubusercontent.com/56666070/210162025-9557a2c7-09e6-44c3-9623-98c883eeb1ef.png)
 ![316344638_556253342527299_6271963913039150419_n](https://user-images.githubusercontent.com/56666070/210162028-01a514e2-2081-48dc-a1da-88c6614e016f.png)
+![316376313_702021347832707_8619206777620847280_n](https://user-images.githubusercontent.com/56666070/210164078-abb75d05-d6a9-4389-9dd5-1a0015bb5333.jpg)
