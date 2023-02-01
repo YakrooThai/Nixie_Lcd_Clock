@@ -23,6 +23,17 @@ https://www.youtube.com/watch?v=SYz_JsUdNQg&t=5s
 
 https://www.youtube.com/watch?v=HbwMp17rduE
 
+https://www.youtube.com/shorts/EK3MjSh-hBI
+
+https://www.youtube.com/shorts/QQDNThkZf5s
+
+https://www.youtube.com/watch?v=mYBtSVjrAF8
+
+https://www.youtube.com/watch?v=fD_uu7XovvY
+
+https://www.youtube.com/watch?v=UaurZd7Eckc
+
+
 Please follow my YouTube channel. Still a newbie to make a YouTube channel.
 
 Just press Subscribe my youtube channel. Thankyou
